@@ -1,1 +1,1 @@
-https://55958o.com()# duo
+https://www.55958a.com()# duo
